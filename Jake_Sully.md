@@ -1,0 +1,1 @@
+Jacob 'Jake' Sully (born August 24, 2126) [1] is the protagonist of Avatar. He is a paraplegic renegade Marine veteran who defects to the Na'vi race and is also one of the 20 known avatar drivers. He is the sixth Toruk Makto and Olo'eyktan of the Omaticaya clan
